@@ -1,4 +1,5 @@
 ✨ DevOps  
+🪄 Solutions Architect  
 🚀 Community Builder  
 📢 Public Speaker  
 
